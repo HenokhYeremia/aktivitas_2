@@ -143,7 +143,7 @@ Project menggunakan gaya visual sederhana:
 | 🆔 NBI | 1462300075 |
 | 📧 Email | [henokholbrain@gmail.com](mailto:henokholbrain@gmail.com) |
 | 📍 Lokasi | Surabaya |
-| 📸 Instagram | [@pab2023](https://www.instagram.com/pab2023) |
+| 📸 Instagram | [@pab2023](https://www.instagram.com/hnkhyrmiaa-) |
 
 ---
 
